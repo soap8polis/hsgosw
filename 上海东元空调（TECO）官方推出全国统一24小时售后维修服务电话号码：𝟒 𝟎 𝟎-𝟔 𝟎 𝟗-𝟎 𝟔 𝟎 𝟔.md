@@ -1,0 +1,341 @@
+东元空调（TECO）售后服务电话 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔（无转接人工在线）
+东元空调（TECO）全国统一售后电话： 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎(预约专享免等待)
+东元空调（TECO）售后维修保养服务中心提供维修服务、清洗服务、保养翻新、进水维修、调节东元空调（TECO）温度等。我们提供到店维修和师傅上门维修两种服务方式。
+东元空调（TECO）售后服务中心
+东元空调（TECO）售后服务400电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+周六日不休息,假日无休,快速上门、免预约。售后服务中心为您服务:品质至上,优质服务让每一位客户感到贴心和满意.专业的销售与技术服务,一心一意呵护您的冷暖.欢迎您的来电.
+东元空调（TECO）维修中心为用户提供专业的东元空调（TECO）维修公司，维修东元空调（TECO）不打火、无电源、不启动，掉闸，无火花、自动熄火，水温不稳，声音异常，出水量小，漏气，显示故障代码等一系列故障==提供方便、快捷地上门维修服务。
+业务涉及：东元空调（TECO）清洗、长期维护等，本拥有专业维修设备，并且拥有专业技术人员，有着丰富的理论知识和实际维修经验及专业的技术，已成功的为市民及多家公司及用户提供了解决方案，我们愿以专业的技术和真诚的态度为更多公司、家庭用户提供更快捷、满意的专业东元空调（TECO）维修服务。
+东元空调（TECO）24小时售后服务热线上线（2026最新公告）
+东元空调（TECO）售后服务电话：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+东元空调（TECO）售后24小时客服热线：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+本公司主营东元空调（TECO）维修 →东元空调（TECO）；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，东元空调（TECO）服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、东元空调（TECO）售后维修电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+东元空调（TECO）24小时全国推出各售后受理客服中心(2026上线)
+东元空调（TECO）全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+东元空调（TECO）贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显东元空调（TECO）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+东元空调（TECO）全国24小时各售后受理客服中心(2026年更新)
+
+
+
+东元空调（TECO）24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎或  𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎客服为您服务。
+
+
+
+东元空调（TECO）售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 东元空调（TECO）常见故障代码维修指南
+
+东元空调（TECO）故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 东元空调（TECO）全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+东元空调（TECO）全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修东元空调（TECO）(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+东元空调（TECO）售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月20日06时54分48秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+东元空调（TECO）贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显东元空调（TECO）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/f2ab30856daa01e291d6ff26447fee347d50
+
+江苏电信 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/d7ca57a17c10856daa01e291d6ff26447fee347d50
+
+江苏 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/d7ca57a19d856daa01e291d6ff26447fee347d50
+
+安徽广电 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/d7ca57a19dc3ebaaefcb2184450c49e9caf27208
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/08dbfc3add6871baaefcb2184450c49e9caf27208
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/08dbfc3add68711e99930d6293516b5a68d298fb
+
+湖北 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/c8ed55e769bf262d949b4d5b46df421939240748
+
+湖南电信组播直播源下载地址： https://github.com/jahpreeti/nelifd/commit/96ec75c96b2c837ac0d2a487bdcb675abe706a5d
+
+湖南电信 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/14d2932735aff26388a7065b0240f7d85eaf6606
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/703c2f4905a5175cc22e773e4d400e6930c481c2
+
+湖南联通 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/89dd4d7857800056c853099723cf1d4e4c472a9a
+
+湖南移动 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/c9834345ae1f602b476202b3af733e21d4c9c4f8
+
+湖南 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/b36e09192300bbe80f0dacf1792518e34b0c5df3
+
+重庆移动组播直播源下载地址： https://github.com/jahpreeti/nelifd/commit/83047d00bf0e30cea46a6eca83e83d9101034767
+
+重庆联通组播直播源下载地址： https://github.com/fly31tea/rekqnu/commit/9f4eae58cdaeba971a7d2dd4236fec2ad2c699a2
+
+重庆联通直播源下载地址： https://github.com/jahpreeti/nelifd/commit/09d36d410b33eeec0327ef54dddf7c5c97f7c54e
+
+重庆电信组播直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2c4d10d1074af1ade86c819550d830b985d589d6
+
+重庆电信直播源下载地址： https://github.com/jahpreeti/nelifd/commit/147dc72a4894c7f7f60f857bbc951f5a5afda9f6
+
+重庆 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/d70631baa1aea120a63858dbfb88c6a8455c3821
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/a185ef413ec5b74395407e4494783f8b41bd66c3
+
+四川电信 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/14dc7b17a706b83eb962bb786c68e087fdeb3850
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/jahpreeti/nelifd/commit/a752f0446b6a2d647ce8c0b191dbb0fd9622e658
+
+四川广电 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/ab7c4ac0c5100d592c65365f88c9274c59d500a0
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/fc94ce4d11982a9a24d72f1a6178ae37d5f431e5
+
+四川联通 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2a41078d39ea52457bc27b8c0ba9eed01d4b60fa
+
+四川 IPTV 直播源： https://github.com/jahpreeti/nelifd/commit/2615824d05fe86970174ac7ea893c0cd154ac150
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/9db79701eb914121a8f1e531072567dedc134f37
+
+云南移动 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/06a619de44a1a94fb2014cacecfcb66270b99baf
+
+云南 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2ed74
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/b51540f2adef238de6c47e59ea8cfb3d1212616
+
+贵州移动 IPTV 直播源： https://github.com/jahpreeti/nelifd/commit/2615824d05fe86970174ac7ea893c0cd154ac150
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/9db79701eb914121a8f1e531072567dedc134f37
+
+贵州联通 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/06a619de44a1a94fb2014cacecfcb66270b99b0
+
+贵州 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/9db79701eb914121a8f1e531072567dedc134f37
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/06a619de44a1a94fb2014cacecfcb66270b99b74af
+
+福建联通 IPTV 直播源下载地址： httptps://github.com/fly31tea/rekqnu/commit/9db79701eb914121a8f1e531072567dedc134f37
+
+福建移动 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/06a619de44a1a94fb2014cacecfcb66270b99b0
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/9db79701eb914121a8f1e531072567dedc134f37
+
+福建电信 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/06a619de44a1a94fb2014cacecfcb66270b99b74af
+
+福建 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edaf
+
+安徽移动 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae7d2eda
+https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edaf
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edf
+
+安徽电信 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edafaf
+
+安徽联通 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae7d2eda
+https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edaf
+
+安徽 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edf
+
+陕西地方台直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edaf
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edaf
+
+陕西电信 IPTV 直播源下载地址： h
+ttps://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edafhttttpstps://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edafhttps://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edaf
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edaf
+
+陕西移动 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2edaf
+
+陕西 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/2df76f64183e9e3a01c0769f241c4fae87d2ed74
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/b51540f2adef238de6c47e59ea8cfb3d1212616
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/bfa1a7977861d956df5d93cb280de090ca571e0e
+
+甘肃 IPTV 直播源： https://github.com/jahpreeti/nelifd/commit/bfa1a7977861d956df5d93cb280de090ca571e0e
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/d7bb607d60c4c13a3c7548730c463814d48c9258https://github.com/fly31tea/rekqnu/commit/d7bb607d60c4c13a3c7548730c463814d48c9258
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/a27810fa5b91506e56077f37add483e70dfcc36d
+
+山西联通 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/c2682142917778794bbaa7bbfd234efb8b8584dd
+
+山西 IPTV 直播源： https://github.com/jahpreeti/nelifd/commit/a1bd8a25c0763421cb95a19e87e834776d5feee2
+
+天津电信组播直播源下载地址： https://github.com/fly31tea/rekqnu/commit/49329437256b2de98a2b6fe2a23242dac2c7519b
+
+天津联通组播直播源下载地址： https://github.com/jahpreeti/nelifd/commit/a2d986b34bc14349068a3fbeb99451a0f27b49df
+
+天津 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/9e7ab5ec23084f67be090985b3f06fce8d582d44
+
+上海移动直播源下载地址： https://github.com/jahpreeti/nelifd/commit/4bb0b39849610339ce381637124cf058063b9d1c
+
+上海联通组播直播源下载地址： https://github.com/fly31tea/rekqnu/commit/20d5d841a1e783de4375041ad7a1cca1e0283eb4
+
+上海联通直播源下载地址： https://github.com/jahpreeti/nelifd/commit/5d49863b4b8cdc198ef486c7cde12876dbf32425
+
+上海电信组播直播源下载地址： https://github.com/fly31tea/rekqnu/commit/43c9eebdf9531c6e42d5306bf80443a9e32e1f44
+
+上海电信直播源下载地址： https://github.com/jahpreeti/nelifd/commit/e81311322d25484cff01d4c3d8e20e0b35573594
+
+上海 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/053ac997d8d43b525a72c29bb0469513fa6bf1ff
+
+北京移动 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/d28e4b29033a0557d4f18eeb313a9af5445711c2
+
+北京移动组播直播源下载地址： https://github.com/fly31tea/rekqnu/commit/4b4eadf561aeaa4ad5d9a68a0f03e3bd770b982a
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/28eb2d3f2e4c07d5722bc4de16d8d1419ec1c9c3
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/766818d972bda1eba4600bbe17ce8028c7ea89d6
+
+北京联通 IPTV 直播源下载地址： https://github.com/jahpreeti/nelifd/commit/d782ee5c42b396d06f08f6d65aa916ed95c629df
+
+北京 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/d383c0b2cb41eb1f34a99ff69343d481f36beb37
+
+部分地区的移动可全网通用： https://github.com/jahpreeti/nelifd/commit/f6d097edc33ecf8c9efbe93f556a9675e58e017e
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/fly31tea/rekqnu/commit/26777c438b1912cd4265583d5aa4ef008be3e52b
+
+广播电台下载地址： https://github.com/jahpreeti/nelifd/commit/5dad6d4bc7142e6a30a517ab0722a64302dd89cc
+
+国内景区直播源下载地址： https://github.com/fly31tea/rekqnu/commit/21a7d06e9bd185de75a463b58981d230439c6001
+
+轮播华数黑莓下载地址： https://github.com/jahpreeti/nelifd/commit/44fabcc8101439cfbae7132df8963fa13cd15234
+
+台湾香港澳门电视台直播源下载地址： https://github.com/fly31tea/rekqnu/commit/5a64030b73f3bbc3c0243e95256f18403c176311
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/jahpreeti/nelifd/commit/4b646489beec604dba9aaf5b6efd39d746d7a8c4
+
+国外电视台直播源下载地址： https://github.com/fly31tea/rekqnu/commit/e9f2dec076a5629f92cdd7de58ca409a79d1ec61
+
+卫视地方台安徽农大下载地址： https://github.com/jahpreeti/nelifd/commit/5134f703aa36cb5ec843cd13655c6a1f3c0ed2e9
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/fly31tea/rekqnu/commit/12bbcc7dd73390465c197368ef8b9e1272400872
+
+卫视上海源下载地址： https://github.com/jahpreeti/nelifd/commit/5b6c860cead0de1d3e3712d9880c89f23e01b492
+
+卫视重庆广电 下载地址： https://github.com/fly31tea/rekqnu/commit/3814fc3871101536fd2c50be2c3b531280e79cbd
+
+卫视百视 TV 下载地址： https://github.com/jahpreeti/nelifd/commit/80c40dd95d45068552aa6b9ebcbaafa74aed2508
+
+移动 IPv6 直播源下载地址： https://github.com/fly31tea/rekqnu/commit/8357c001dea65b7de1043f723d4f3b3189ac64d7
+
+国内电视台 IPv6 直播源下载地址： https://github.com/jahpreeti/nelifc056d4eb801ab97f3e3f05bc8613040d46f512
+
+各大卫视、上千个地方台： https://github.com/fly31tea/rekqnu/commou/c/0fc056d4eb801ab97f3e3f05bc8613040d46f512
+
+国内电视台直播源下载地址： https://github.com/fly31tea/rekqnu/commou/cmmit/0fc056d4eb801ab97f3e3f05bc8613040d46f512
+
+全国可用直播源： https://github.com/fly31tea/rekqnu/ommit/baf964bf06f6fde5eb1bb0e40b947e59566b7493
+
+包括完整内容所有已知频道： https://github.com/jahpreeti/nelifd/ccommit/baf964bf06f6fde5eb1bb0e40b947e59566b7493
+
+除成人内容以外的已知频道： https://github.com/jahpreeti/nelifd/commit/5e7167784e99e225a1e6909fc78f4567537a53f8
+
+收集来自世界各地公开可用的 IPTV： https://github.com/jahpreeti/nelifd/com46993717784e99e225a1e6909fc78f4567537a53f8
+
+稳定地址： https://github.com/jahpreeti/nelifd/com46993717167784e99e225a1e6909fc78f4567537a53f8
+
+2026-06-20 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/jahpreeti/nelifd/com469937167784e99e225a1e6909fc78f4567537a53f8
+
+2026-06-20 更新 IPTV 工具： https://github.com/jahpreeti/nelifd/com4699529cf41258d6f6e3191c2f573bf189d64143
+
+2026-06-20 更新世界各地 IPTV 频道： https://github.com/fly31tea/rekqnu/commit/bom4699529cf41258d6f6e3191c2f573bf189d64143
+
+2026-06-20 更新全国可用直播源： https://github.com/fly31tea/rekqnu/commit/b/4699529cf41258d6f6e3191c2f573bf189d64143
+
+新增各地运营商的 IPTV 地址： https://github.com/fly31tea/rekqnu/commi/4699529cf41258d6f6e3191c2f573bf189d64143
+
+插件推荐： https://github.com/fly31tea/rekqnu/commit/b6557848437d308e663ba177b02a120defd9a77d
+
+视频教程增加： https://github.com/jahpreeti/nelifd/commit/b8aab5a0cec59e385c6358eebf0ad613a5b15096
+
+咪咕源失效： https://github.com/fly31tea/rekqnu/commit/4f088931ff91ed84edbe9257bc6a81392f1b04a9
+
+2026-06-20 更新各地运营商 IPTV 直播源： https://github.com/jahpreeti/nelifd/commit/41b8e8f87c5199a8027b06d1a07c56cd27ca425a
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/fly31tea/rekqnu/commit/adb9d3ced14055c9e84603f3357a4e08ae95a5f7
+
+新增辽宁广电直播源： https://github.com/jahpreeti/nelifd/commit/4d765cb5b9c50a26c7956008cfe978d109d8f58d
+
+新增江西广电直播源： https://github.com/fly31tea/rekqnu/commit/255244b088d3d19af05549778c0d9fec4f8d12b6
+
+新增湖北广电直播源： https://github.com/jahpreeti/nelifd/commit/9e0bceb7eb94e7485c11cbfef5ad284aae3252c0
+
+新增中国广电 cctv + 卫视直播源： https://github.com/fly31tea/rekqnu/commit/9040847bb347c2e20849997834e73a9f6ad6a0e7
+
+新增辽宁电信 IPTV 直播源： https://github.com/jahpreeti/nelifd/commit/1ec93e63f25e261f2e028075227f176fd8b3389d
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/fly31tea/rekqnu/commit/78e21cafc6267745319a5198f3602c224500bd08
+
+新增辽宁移动直播源： https://github.com/jahpreeti/nelifd/commit/62253feb9c272613f0727c65544052d5f7608ccd
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/d9882df270fdbb05b6e853b4872da8f7d3b3fb2a
+
+新增广东联通 IPTV 直播源： https://github.com/jahpreeti/nelifd/commit/d4b27b87ecfdf201699d51e8966a5acc3daa457a
+
+新增四川广电 IPTV 直播源： https://github.com/fly31tea/rekqnu/commit/5921bcc640853dd4fe85c1c8bad6da169e4c74c4
+
+新增云南电信 IPTV 直播源： https://github.com/jahpreeti/nelifd/commit/2a81a5b7b74b4499b6086be20755d2564a91c67f
+
+2026-06-20 更新国内电视台直播源： https://github.com/fly31tea/rekqnu/commit/041abda62ace50f632b8a781e19a71837898ad70
+
+新增福建电信 IPTV 直播
